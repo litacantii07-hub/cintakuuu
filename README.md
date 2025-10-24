@@ -1,0 +1,2 @@
+# cintakuuu
+untuk kesayangankuuu
